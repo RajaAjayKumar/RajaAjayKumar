@@ -10,7 +10,7 @@
 - 👯 I’m looking to collaborate on some cool projects.
 - 💬 Ask me about: Coding, Astronomy, Psychology, Philosophy, list of few good books or even blogs.
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/).
-- ⚡ Fun fact: Nothing starts with an *N* and ends with a *g*.:wink:
+- ⚡ Fun fact: Nothing starts with an *N* and ends with a *g*. :wink: If you found one, feel free to let me know (DM me on LinkedIn)
 - :bulb: Feel free to share with me any kind of thought provoking ideas.
 
 Have a great day ahead. :collision:
